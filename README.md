@@ -1,0 +1,1 @@
+# N-stroj-pro-vytv-en-n-kupn-ch-seznam-
